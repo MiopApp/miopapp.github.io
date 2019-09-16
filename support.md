@@ -1,3 +1,3 @@
 # Support
 
-For all contacts, please write to [our telegram page.](https://t.me/MiopSupport)
+For all contacts, please write to [our email.](kentavrenok@protonmail.com)
